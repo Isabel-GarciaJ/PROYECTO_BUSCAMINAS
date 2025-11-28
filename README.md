@@ -5,6 +5,6 @@ Integrantes del grupo:
 - Isabel Sofía García Joya - 2240079
 - Andrés Felipe Gomez Pradilla - 2240076
 - Nicol Alexa Rodríguez Alfonso - 2240071
-- Dixon Sebastian Perez Montanez - 
+- Dixon Sebastian Perez Montanez - 2240049
 - María Juliana Pinto Duarte - 2232736
 - Hector Alirio Valdeleon Millán - 2230063
